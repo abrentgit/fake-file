@@ -1,1 +1,1 @@
-Hi
+I am going to crush it today. Cause I am a fuckin Legend. 
